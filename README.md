@@ -1,1 +1,1 @@
-osti d'niggers
+Bannissez moe pas
