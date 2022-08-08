@@ -1,1 +1,1 @@
-[Bring me back the old Friv](https://www.friv.com)
+H7 80T T34M'S C0RN3R
